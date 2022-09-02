@@ -1,1 +1,1 @@
-coole
+cool
